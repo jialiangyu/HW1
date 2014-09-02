@@ -1,2 +1,0 @@
-Jialiang Yu
-Chicago Bulls
